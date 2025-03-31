@@ -1,1 +1,1 @@
-# psc-lista-03-2025
+# Repositório dedicado a fins acadêmicos.
